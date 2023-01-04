@@ -1,3 +1,3 @@
-Working 10 years as software developer in the travel industry.
+Working for a decade as a software developer in the tourism industry.
 
 - 📫 How to reach me: loges.rolf@gmail.com
